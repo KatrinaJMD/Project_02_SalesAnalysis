@@ -1,1 +1,0 @@
-Link to [Project_02_SalesAnalysis presentation](https://www.canva.com/design/DAEwaMfvQRg/RkMd0EtcWAVGfc45djyg1A/view?utm_content=DAEwaMfvQRg&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink)
